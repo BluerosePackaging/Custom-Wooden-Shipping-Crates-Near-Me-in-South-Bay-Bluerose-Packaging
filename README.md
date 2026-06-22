@@ -1,4 +1,4 @@
-# bluerose packaging | Custom Wooden Shipping Crates Near Me in South Bay
+# Bluerose Packaging | Custom Wooden Shipping Crates Near Me in South Bay
 
 Custom wooden shipping crates from bluerose packaging provide dependable protection for products that require durable packaging during transportation and storage. These crate solutions are manufactured to accommodate varying dimensions and weight requirements while supporting secure handling procedures.
 
